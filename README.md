@@ -1,0 +1,2 @@
+# uyghurr
+about UYGHURISTAN
